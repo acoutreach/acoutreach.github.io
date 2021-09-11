@@ -22,10 +22,10 @@ advised by CCO staff member Mollie Little.
 
 [Check out a video from ACO Alumni, Willard Crosby, on God's invitation to a relationship with Him.](https://vimeo.com/460169594)
 
-### Tuesdays at 8:30 in Ford Chapel
+### What are we up to?
 
-Throughout the 2021-2022 school year we are exploring the Gospel and looking at ethnicity and racethrough the lens of the Gospel
-(aka good news!).
+This school year (2021-2022) we are exploring the Gospel and looking at ethnicity and race through the lens of the Gospel
+(aka the good news!).
 God created all things good - including ethnicity! Sin broke and twisted all things, including humanity, ethnicity, and race.
 But Jesus came to heal and restore the broken things - our ethnicity and race included. We are excited to explore this
 with each other and with you!
